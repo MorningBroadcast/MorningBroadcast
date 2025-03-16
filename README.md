@@ -32,7 +32,7 @@
  
 </p>
 <p align="center">
-     <br> ${\textsf{\color{#daab86}　 ೀ ꒰　b4 INT please read strawpages and check out my x >< !!　꒱}}$ 
+     <br> ${\textsf{\color{#daab86}　 ೀ ꒰　b4 INT please read strawpage ꒱ }}$ 
  <br>
  
  <br>
